@@ -1,1 +1,1 @@
-# Walking-Example
+# Walking Example Heather Kilbride
